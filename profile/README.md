@@ -52,7 +52,6 @@ Let’s dive into the specifics!
 
 ### 6. **Optimized for Smooth Gameplay**
 - Enjoy **faster loading times** and **optimized performance** for lag-free and smooth action.
-![Image](https://github.com/user-attachments/assets/80e98bc7-850b-41fd-953f-611ad369e663)
 ## How to Download and Install Brawl Stars v59.197 MOD APK
 
 Follow these simple steps to get the **Brawl Stars v59.197 MOD APK** up and running on your device:
